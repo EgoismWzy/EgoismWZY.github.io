@@ -1,1 +1,2 @@
-# EgoismWZY.github.io
+
+# wwww.wangziyao.com
